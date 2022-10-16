@@ -3,7 +3,10 @@
 - 🌱 I’m currently learning electrical engineer ⚡
 - 💞️ I’m looking to collaborate on fun activities!!!!
 - 📫 How to reach me (through my heart💖)
- Welcome to my profile ~~~~
+- Welcome to my profile ~~~~
+ 
+ 
+ 
  still work in progress 🏗️
 
 <!---
